@@ -3,4 +3,4 @@
 $\\color{deeporange}{Adachi\ rei}$
 
  ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ $\\color{darkred}{𝘤𝘭𝘰𝘸𝘯𝘱𝘪𝘦𝘳𝘤𝘦\ 𝘧𝘢𝘯}$  ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀[ata](https://aubz.atabook.org/) 
- ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀$\\color{darkorange}{i\ block\ freely}$
+ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀$\\color{deeporange}{i\ block\ freely}$
