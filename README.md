@@ -1,5 +1,5 @@
-![image alt](https://github.com/clownzyyaoi/clownzyyaoi/blob/main/c2c49e0b5668ab1a1b2061f52b0bbf63.jpg?raw=true)
+![image alt](https://github.com/clownzyyaoi/clownzyyaoi/blob/main/06d02d2d7808defe5240a2943c8b5fcb.jpg?raw=true)
 
 $\\color{red}{Adachi\ rei}$
 
- ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ $\\color{purple}{𝘤𝘭𝘰𝘸𝘯𝘱𝘪𝘦𝘳𝘤𝘦\ 𝘧𝘢𝘯}$
+ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ $\\color{dark red}{𝘤𝘭𝘰𝘸𝘯𝘱𝘪𝘦𝘳𝘤𝘦\ 𝘧𝘢𝘯}$
