@@ -2,4 +2,4 @@
 
 $\\color{red}{Adachi\ rei}$
 
- ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ $\\color{dark red}{𝘤𝘭𝘰𝘸𝘯𝘱𝘪𝘦𝘳𝘤𝘦\ 𝘧𝘢𝘯}$
+ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ $\\color{darkred}{𝘤𝘭𝘰𝘸𝘯𝘱𝘪𝘦𝘳𝘤𝘦\ 𝘧𝘢𝘯}$
