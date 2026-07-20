@@ -3,5 +3,7 @@
 
 
  ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ $\\color{darkred}{𝘤𝘭𝘰𝘸𝘯𝘱𝘪𝘦𝘳𝘤𝘦\ no1\ 𝘧𝘢𝘯}$  ⠀ ⠀ ⠀ ⠀ ⠀   ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ 
-   ⠀ ⠀ ⠀ ⠀ ⠀[ata](https://aubz.atabook.org/) 
- ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ $\\color{PURPLE}{i\ block\ freely}$
+   ⠀ ⠀ ⠀ ⠀ ⠀[‎ 新book ‎](https://aubz.atabook.org/) 
+ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀   
+ $\\color{darkred}{minor\ sv}
+
