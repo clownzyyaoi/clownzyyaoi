@@ -8,5 +8,5 @@
    ⠀ ⠀ ⠀    ⠀ ⠀ ⠀    ⠀ ⠀ ⠀    ⠀ ⠀ ⠀ $\\color{white}{"so,\ heres\ your\ chance."}$
 
 .
-   ⠀ ⠀ ⠀ ⠀    ⠀ ⠀ ⠀ ⠀    ⠀ ⠀ ⠀ ⠀ [straw](https://squiddoaubs.straw.page)⠀- [‎ 新book ‎](https://aubz.atabook.org/) 
+   ⠀ ⠀ ⠀ ⠀    ⠀ ⠀ ⠀ ⠀    ⠀ ⠀ ⠀ ⠀  [‎ 新book ‎](https://aubz.atabook.org/) 
 
