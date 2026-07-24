@@ -5,7 +5,7 @@
    ⠀ ⠀ ⠀ ⠀   ⠀ ⠀ ⠀ ⠀ 
  
  
-   ⠀ ⠀ ⠀    ⠀ ⠀ ⠀    ⠀ ⠀ ⠀    ⠀ ⠀ ⠀ $\\color{pink}{i block freely}$
+   ⠀ ⠀ ⠀    ⠀ ⠀ ⠀    ⠀ ⠀ ⠀    ⠀ ⠀ ⠀ $\\color{pink}{i\ block\ freely}$
 
 .
    ⠀ ⠀ ⠀ ⠀    ⠀ ⠀ ⠀ ⠀    ⠀ ⠀ ⠀ ⠀  [‎ 新book ‎](https://aubz.atabook.org/) 
