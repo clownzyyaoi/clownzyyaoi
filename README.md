@@ -1,11 +1,11 @@
-![image alt](https://github.com/clownzyyaoi/clownzyyaoi/blob/main/2026_07_20_0wb_Kleki.png?raw=true)
+![image alt](https://github.com/clownzyyaoi/clownzyyaoi/blob/main/6bc8ca90e33348decafc9c3edbe5504a.jpg?raw=true)
 
-   ⠀ ⠀ ⠀ ⠀   ⠀ ⠀ ⠀ ⠀   ⠀ ⠀ ⠀ ⠀ $\\color{darkred}{𝘤𝘭𝘰𝘸𝘯}$  ノ   $\\color{darkred}{aub}$ 
+   ⠀ ⠀ ⠀ ⠀   ⠀ ⠀ ⠀ ⠀   ⠀ ⠀ ⠀ ⠀  ノ   $\\color{purple}{aub}$ 
 
    ⠀ ⠀ ⠀ ⠀   ⠀ ⠀ ⠀ ⠀ 
  
- ![image alt](https://github.com/clownzyyaoi/clownzyyaoi/blob/main/2026_07_20_0vr_Kleki.png?raw=true)
-   ⠀ ⠀ ⠀    ⠀ ⠀ ⠀    ⠀ ⠀ ⠀    ⠀ ⠀ ⠀ $\\color{white}{"so,\ heres\ your\ chance."}$
+ 
+   ⠀ ⠀ ⠀    ⠀ ⠀ ⠀    ⠀ ⠀ ⠀    ⠀ ⠀ ⠀ $\\color{pink}{i block freely}$
 
 .
    ⠀ ⠀ ⠀ ⠀    ⠀ ⠀ ⠀ ⠀    ⠀ ⠀ ⠀ ⠀  [‎ 新book ‎](https://aubz.atabook.org/) 
