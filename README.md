@@ -1,5 +1,7 @@
 ![image alt](https://github.com/clownzyyaoi/clownzyyaoi/blob/main/tumblr_9bd7b8aace5a34f0dc93df895f7adfaa_adf95962_500.png?raw=true)
 
+"Every block I place is a promise that I’m still here, and every block you break is a reminder that you can’t get rid of me.
+
 
 ![image alt](https://github.com/clownzyyaoi/clownzyyaoi/blob/main/tumblr_4d67619ab2e56aa527c8b38ce226f817_ff4c8663_250.png?raw=true)
 
