@@ -3,7 +3,7 @@
 "Every block I place is a promise that I’m still here, and every block you break is a reminder that you can’t get rid of me.
 
 
-![image alt](https://github.com/clownzyyaoi/clownzyyaoi/blob/main/tumblr_4d67619ab2e56aa527c8b38ce226f817_ff4c8663_250.png?raw=true)
+![image alt](https://github.com/clownzyyaoi/clownzyyaoi/blob/main/2026_08_18_0xb_Kleki.png?raw=true)
 
 ⠀  
 ![image alt](https://github.com/clownzyyaoi/clownzyyaoi/blob/main/tumblr_6a62d0afd3b99cdaf9dea3ddfd15a497_1d637b6d_500.png?raw=true)
