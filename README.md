@@ -7,7 +7,6 @@ $\color{#f3b5a9}{\textsf{𝐛𝐫𝐚𝐧𝐳𝐲craft 𝐤𝐢𝐧..}}$
 $\color{#c58d90}{\textsf{﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 }}$
 
- $\color{#cfa295}{\textsf{𖦹 - hi my name is}}$  $\color{#ae7c75}{\textsf{aubree,}}$ $\color{#c58d90}{\textsf{or on rare occasions:}}$ $\color{#a5575c}{\textsf{the clownpierce fan}}$ $\color{#f0a8a8$}{\textsf{cuds are always appreciated and heavily encouraged!}}$
-
+ $\color{#cfa295}{\textsf{𖦹 - hi my name is}}$  $\color{#ae7c75}{\textsf{aubree,}}$ $\color{#c58d90}{\textsf{or on rare occasions:}}$ $\color{#a5575c}{\textsf{the clownpierce fan}}$ $\color{#cfa295}{\textsf{cuds are always appreciated and wanted!}}$
  [‎ 新book ‎](https://aubz.atabook.org/) 
 
