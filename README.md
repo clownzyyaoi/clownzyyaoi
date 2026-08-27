@@ -1,4 +1,4 @@
-![Image Alt](https://github.com/clownzyyaoi/clownzyyaoi/blob/main/tumblr_63c070fb9dc4481eae79190614874223_54fbe286_500.png?raw=true)
+![Image Alt](https://github.com/clownzyyaoi/clownzyyaoi/blob/main/2026_08_28_02u_Kleki.png?raw=true)
 
 $\color{#f3b5a9}{\textsf{𝐛𝐫𝐚𝐧𝐳𝐲craft 𝐤𝐢𝐧..}}$
 
@@ -33,5 +33,6 @@ $\color{#cfa295}{\textsf{sign ata for}}$ $\color{#be5656}{\textsf{clownzy}}$
 [ata](https://clownlove.atabook.org/)
 
 
-![Image Alt](https://github.com/clownzyyaoi/clownzyyaoi/blob/main/tumblr_43b0d445c568f0a01d5ab2eb396e7113_2055b8a7_500.png?raw=true)
+![Image Alt](https://github.com/clownzyyaoi/clownzyyaoi/blob/main/2026_08_28_02u_Kleki.png?raw=true)
+
 
