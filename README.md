@@ -7,7 +7,7 @@ $\color{#f3b5a9}{\textsf{𝐛𝐫𝐚𝐧𝐳𝐲craft 𝐤𝐢𝐧..}}$
 $\color{#c58d90}{\textsf{﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 }}$
 
-⋮ abt me!
+$\color{#cfa295}{\textsf{⋮ abt me!}}$
 
  $\color{#cfa295}{\textsf{ - hi my name is}}$  $\color{#daa3d2}{\textsf{aubree,}}$ $\color{#c58d90}{\textsf{or on rare occasions:}}$ $\color{#a5575c}{\textsf{the clownpierce fan.}}$ $\color{#cfa295}{\textsf{im transfem, transferring back in october last year,}}$ $\color{#ffcfa7}{\textsf{the name}}$ $\color{#daa3d2}{\textsf{aubree,}}$ $\color{#ffcfa7}{\textsf{was given by a friend of mine since they were a big ihasafacelulz fan.}}$ $\color{#cfa295}{\textsf{i LOVE CUDDLING, cuds are always appreciated and wanted, even if im on}}$ $\color{#be5656}{\textsf{dni!}}$ 
 
