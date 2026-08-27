@@ -9,7 +9,7 @@ $\color{#c58d90}{\textsf{﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌�
 
 ⋮ abt me!
 
- $\color{#cfa295}{\textsf{ - hi my name is}}$  $\color{#ae7c75}{\textsf{aubree,}}$ $\color{#c58d90}{\textsf{or on rare occasions:}}$ $\color{#a5575c}{\textsf{the clownpierce fan.}}$ $\color{#cfa295}{\textsf{im a transfem person, i transferred back in october!, name given by a friend of mine.}}$ $\color{#cfa295}{\textsf{i LOVE CUDDLING, cuds are always appreciated and wanted, even if im on}}$ $\color{#be5656}{\textsf{dni!}}$ 
+ $\color{#cfa295}{\textsf{ - hi my name is}}$  $\color{#ae7c75}{\textsf{aubree,}}$ $\color{#c58d90}{\textsf{or on rare occasions:}}$ $\color{#a5575c}{\textsf{the clownpierce fan.}}$ $\color{#cfa295}{\textsf{im transfem, transferring back in october last year, the name aubree given by a friend of mine since they were a big ihasafacelulz fan.}}$ $\color{#cfa295}{\textsf{i LOVE CUDDLING, cuds are always appreciated and wanted, even if im on}}$ $\color{#be5656}{\textsf{dni!}}$ 
 
 
 
