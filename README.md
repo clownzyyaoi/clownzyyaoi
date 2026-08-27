@@ -1,8 +1,10 @@
+![Image Alt](https://github.com/clownzyyaoi/clownzyyaoi/blob/main/tumblr_43b0d445c568f0a01d5ab2eb396e7113_2055b8a7_500.png?raw=true)
 
+$\color{#f3b5a9}{\textsf{𝐛𝐫𝐚𝐧𝐳𝐲craft 𝐤𝐢𝐧..}}$
 
 ![Image Alt](https://github.com/clownzyyaoi/clownzyyaoi/blob/main/tumblr_3a2e00ad40c6a43fa5a8e00ae1b3fee7_e672d96a_500.jpg?raw=true)
 
-$\color{#f3b5a9}{\textsf{𝐛𝐫𝐚𝐧𝐳𝐲craft 𝐤𝐢𝐧..}}$
+$\color{#f3b5a9}{\textsf{clownzy ㅤ♡ }}$
 
 $\color{#c58d90}{\textsf{﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 }}$
@@ -26,8 +28,10 @@ $\color{#ae7c75}{\textsf{ and patience!}}$ $\color{#be5656}{\textsf{there will, 
 $\color{#c58d90}{\textsf{﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 }}$
 
-![Image Alt](
-
+![Image Alt](https://github.com/clownzyyaoi/clownzyyaoi/blob/main/2026_08_28_02q_Kleki%20(1).png?raw=true)
+$\color{#cfa295}{\textsf{sign ata for}}$ $\color{#be5656}{\textsf{clownzy}}$
 [ata](https://clownlove.atabook.org/)
 
+
+![Image Alt](https://github.com/clownzyyaoi/clownzyyaoi/blob/main/tumblr_63c070fb9dc4481eae79190614874223_54fbe286_500.png?raw=true)
 
