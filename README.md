@@ -1,6 +1,6 @@
 ![Image Alt](https://github.com/clownzyyaoi/clownzyyaoi/blob/main/2026_08_28_030_Kleki.png?raw=true)
 
-$\color{#f3b5a9}{\textsf{𝐛𝐫𝐚𝐧𝐳𝐲craft 𝐤𝐢𝐧..}}$
+$\color{#bd7a9b}{\textsf{𝐛𝐫𝐚𝐧𝐳𝐲craft 𝐤𝐢𝐧..}}$
 
 ![Image Alt](https://github.com/clownzyyaoi/clownzyyaoi/blob/main/tumblr_3a2e00ad40c6a43fa5a8e00ae1b3fee7_e672d96a_500.jpg?raw=true)
 
@@ -11,7 +11,7 @@ $\color{#c58d90}{\textsf{﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌�
 
 $\color{#cfa295}{\textsf{⋮ abt me!}}$
 
- $\color{#cfa295}{\textsf{ - hi my name is}}$  $\color{#daa3d2}{\textsf{aubree,}}$ $\color{#c58d90}{\textsf{or on rare occasions:}}$ $\color{#a5575c}{\textsf{the clownpierce fan.}}$ $\color{#cfa295}{\textsf{im transfem, transferring back in october last year,}}$ $\color{#ffcfa7}{\textsf{the name}}$ $\color{#daa3d2}{\textsf{aubree,}}$ $\color{#ffcfa7}{\textsf{was given by a friend of mine since they were a big ihasafacelulz fan.}}$ $\color{#cfa295}{\textsf{i LOVE CUDDLING, cuds are always appreciated and wanted, even if im on}}$ $\color{#be5656}{\textsf{dni!}}$ 
+ $\color{#cfa295}{\textsf{ - hi my name is}}$  $\color{#bd7a9b}{\textsf{aubree,}}$ $\color{#c58d90}{\textsf{or on rare occasions:}}$ $\color{#a5575c}{\textsf{the clownpierce fan.}}$ $\color{#cfa295}{\textsf{im transfem, transferring back in october last year,}}$ $\color{#ffcfa7}{\textsf{the name}}$ $\color{#bd7a9b}{\textsf{aubree,}}$ $\color{#ffcfa7}{\textsf{was given by a friend of mine since they were a big ihasafacelulz fan.}}$ $\color{#cfa295}{\textsf{i LOVE CUDDLING, cuds are always appreciated and wanted, even if im on}}$ $\color{#be5656}{\textsf{dni!}}$ 
 
   
 
