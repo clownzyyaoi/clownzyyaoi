@@ -15,7 +15,7 @@ $\color{#c58d90}{\textsf{﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌�
  $\color{#c58d90}{\textsf{﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 }}$
 
-$\color{#be5656}{\textsf{BYI}}$
+$\color{#be5656}{\textsf{゛ BYI}}$
 
 $\color{#ae7c75}{\textsf{ ₎₎ i have struggles with social cues and may not understand everything quickly,  just give me some time and patience. }}$
 
