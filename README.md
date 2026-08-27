@@ -33,6 +33,9 @@ $\color{#c58d90}{\textsf{﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌�
 $\color{#cfa295}{\textsf{sign ata for}}$ $\color{#be5656}{\textsf{clownzy >>}}$ [ata](https://clownlove.atabook.org/)
 
 
+<sub>${\text{\color{#d16ba5} When　\color{#c777b9} you　\color{#ba83ca} made　\color{#aa8fd8} up　\color{#9a9ae1} a　\color{#8aa7ec} version　\color{#79b3f4} of　\color{#69bff8} }}$ <br>
+${\text{\color{#d16ba5} Me　\color{#c777b9} that　\color{#ba83ca} you　\color{#aa8fd8} thought　\color{#9a9ae1} you　\color{#8aa7ec} loved◞　\color{#79b3f4} But　\color{#69bff8} I　\color{#52cffe} am　\color{#41dfff}  not 　\color{#46eefa} your \color{#46eefa} Aphrodite}}$ <br>
+
 
 ![Image Alt](https://github.com/clownzyyaoi/clownzyyaoi/blob/main/2026_08_28_030_Kleki%20(1).png?raw=true)
 
