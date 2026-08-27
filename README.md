@@ -29,8 +29,9 @@ $\color{#c58d90}{\textsf{﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌�
 }}$
 
 ![Image Alt](https://github.com/clownzyyaoi/clownzyyaoi/blob/main/2026_08_28_02q_Kleki%20(1).png?raw=true)
-$\color{#cfa295}{\textsf{sign ata for}}$ $\color{#be5656}{\textsf{clownzy >>}}$
-[ata](https://clownlove.atabook.org/)
+
+$\color{#cfa295}{\textsf{sign ata for}}$ $\color{#be5656}{\textsf{clownzy >>}}$ [ata](https://clownlove.atabook.org/)
+
 
 
 ![Image Alt](https://github.com/clownzyyaoi/clownzyyaoi/blob/main/2026_08_28_030_Kleki%20(1).png?raw=true)
