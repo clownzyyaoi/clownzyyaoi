@@ -23,6 +23,11 @@ $\color{#ae7c75}{\textsf{ ₎₎ i have struggles with social cues and may not u
 $\color{#ae7c75}{\textsf{ and patience!}}$ $\color{#be5656}{\textsf{there will, and i mean WILL be times where i dont int with people,}}$ $\color{#a53636}{\textsf{only if im emotionally drained.}}$ 
 
 
+$\color{#c58d90}{\textsf{﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
+}}$
+
+![Image Alt](
+
 [ata](https://clownlove.atabook.org/)
 
 
