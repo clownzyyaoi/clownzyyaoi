@@ -1,6 +1,6 @@
 ![Image Alt](https://github.com/clownzyyaoi/clownzyyaoi/blob/main/2026_08_28_030_Kleki.png?raw=true)
 
-<sub>${\text{\color{#ebb8a1} B　\color{#c777b9} r　\color{#ba83ca} a　\color{#aa8fd8} n　\color{#9a9ae1} z　\color{#8aa7ec} y　\color{#79b3f4}}$ <br>
+<sub>${\text{\color{#ebb8a1} B　\color{#c777b9} r　\color{#ba83ca} a　\color{#aa8fd8} n　\color{#9a9ae1} z　\color{#8aa7ec} y　\color{#79b3f4}$ <br>
 
 ${\text{\color{#d16ba5} c　\color{#c777b9} r　\color{#ba83ca} a　\color{#aa8fd8} f　\color{#9a9ae1} you　\color{#8aa7ec} t◞　\color{#79b3f4} k　\color{#69bff8} I　\color{#52cffe} n}}$ <br>
 
