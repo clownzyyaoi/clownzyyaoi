@@ -1,4 +1,5 @@
-![Image Alt](https://github.com/clownzyyaoi/clownzyyaoi/blob/main/2026_08_28_030_Kleki.png?raw=true)
+![Image Alt](https://github.com/clownzyyaoi/clownzyyaoi/blob/main/2026_08_30_04h_Kleki.png?raw=true)
+
 
 ![Image Alt](https://github.com/clownzyyaoi/clownzyyaoi/blob/main/2026_08_28_07y_Kleki.png?raw=true)
 ![Image Alt](https://github.com/clownzyyaoi/clownzyyaoi/blob/main/tumblr_3a2e00ad40c6a43fa5a8e00ae1b3fee7_e672d96a_500.jpg?raw=true)
@@ -34,6 +35,6 @@ $\color{#cfa295}{\textsf{sign ata for}}$ $\color{#ff85a3}{\textsf{clownzy >>}}$ 
 
 
 
-![Image Alt](https://github.com/clownzyyaoi/clownzyyaoi/blob/main/2026_08_28_030_Kleki%20(1).png?raw=true)
+![Image Alt](https://github.com/clownzyyaoi/clownzyyaoi/blob/main/2026_08_30_04h_Kleki.png?raw=true)
 
 
