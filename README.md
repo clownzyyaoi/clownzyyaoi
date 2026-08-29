@@ -10,7 +10,7 @@ $\color{#c58d90}{\textsf{﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌�
 
 $\color{#cfa295}{\textsf{⋮ abt me!}}$
 
- $\color{#cfa295}{\textsf{ - hi my name is}}$  $\color{#bd7a9b}{\textsf{aubree.}}$  $\color{#cfa295}{\textsf{im transfem, transferring back in october last year,}}$ $\color{#ffcfa7}{\textsf{the name}}$ $\color{#bd7a9b}{\textsf{aubree,}}$ $\color{#ffcfa7}{\textsf{was given by a friend of mine since they were a big ihasafacelulz fan.}}$ $\color{#cfa295}{\textsf{i LOVE CUDDLING, cuds are always appreciated and wanted, even if im on}}$ $\color{#be5656}{\textsf{dni!}}$ 
+ $\color{#cfa295}{\textsf{ - hi my name is}}$  $\color{#ff85a3}{\textsf{aubree.}}$  $\color{#cfa295}{\textsf{im transfem, transferring back in october last year,}}$ $\color{#ffcfa7}{\textsf{the name}}$ $\color{#ff85a3}{\textsf{aubree,}}$ $\color{#ffcfa7}{\textsf{was given by a friend of mine since they were a big ihasafacelulz fan.}}$ $\color{#cfa295}{\textsf{i LOVE CUDDLING, cuds are always appreciated and wanted, even if im on}}$ $\color{#be5656}{\textsf{dni!}}$ 
 
   
 
