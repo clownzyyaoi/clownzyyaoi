@@ -31,7 +31,7 @@ $\color{#f1adbc}{\textsf{﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌�
  
 ![Image Alt](https://github.com/clownzyyaoi/clownzyyaoi/blob/main/2026_08_30_04g_Kleki.png?raw=true)
 
-$\color{#cfa295}{\textsf{sign ata for}}$ [clownzy](https://clownlove.atabook.org/)
+$\color{#f5c0cc}{\textsf{sign ata for}}$ [clownzy](https://clownlove.atabook.org/)
 
 
 
