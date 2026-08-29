@@ -1,4 +1,4 @@
-![Image Alt](https://github.com/clownzyyaoi/clownzyyaoi/blob/main/2026_08_30_04h_Kleki.png?raw=true)
+![Image Alt](https://github.com/clownzyyaoi/clownzyyaoi/blob/main/2026_08_30_04r_Kleki.png?raw=true)
 
 
 ![Image Alt](https://github.com/clownzyyaoi/clownzyyaoi/blob/main/2026_08_28_07y_Kleki.png?raw=true)
@@ -6,7 +6,7 @@
 
 $\color{#f3b5a9}{\textsf{clownzy ㅤ♡ }}$
 
-$\color{#c58d90}{\textsf{﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
+$\color{#f1adbc}{\textsf{﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 }}$
 
 $\color{#cfa295}{\textsf{⋮ abt me!}}$
@@ -16,7 +16,7 @@ $\color{#cfa295}{\textsf{⋮ abt me!}}$
   
 
 
- $\color{#c58d90}{\textsf{﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
+ $\color{#f1adbc}{\textsf{﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 }}$
 
 $\color{#be5656}{\textsf{゛ BYI}}$
@@ -25,7 +25,7 @@ $\color{#ae7c75}{\textsf{ ₎₎ i have struggles with social cues and may not u
 $\color{#ae7c75}{\textsf{and patience!}}$ $\color{#be5656}{\textsf{there will, and i mean WILL be times where i dont int with people,}}$ $\color{#a53636}{\textsf{only if im emotionally drained.}}$ 
 
 
-$\color{#c58d90}{\textsf{﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
+$\color{#f1adbc}{\textsf{﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 }}$
 
  
@@ -35,6 +35,6 @@ $\color{#cfa295}{\textsf{sign ata for}}$ $\color{#ff85a3}{\textsf{clownzy >>}}$ 
 
 
 
-![Image Alt](https://github.com/clownzyyaoi/clownzyyaoi/blob/main/2026_08_30_04h_Kleki.png?raw=true)
+![Image Alt](https://github.com/clownzyyaoi/clownzyyaoi/blob/main/2026_08_30_04r_Kleki.png?raw=true)
 
 
