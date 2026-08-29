@@ -26,7 +26,8 @@ $\color{#ae7c75}{\textsf{and patience!}}$ $\color{#be5656}{\textsf{there will, a
 
 $\color{#c58d90}{\textsf{﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 }}$
-
+<details style="margin-bottom: 20; cursor: pointer;">
+ 
 ![Image Alt](https://github.com/clownzyyaoi/clownzyyaoi/blob/main/2026_08_28_02q_Kleki%20(1).png?raw=true)
 
 $\color{#cfa295}{\textsf{sign ata for}}$ $\color{#be5656}{\textsf{clownzy >>}}$ [ata](https://clownlove.atabook.org/)
