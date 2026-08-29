@@ -26,7 +26,7 @@ $\color{#ae7c75}{\textsf{and patience!}}$ $\color{#be5656}{\textsf{there will, a
 
 $\color{#c58d90}{\textsf{﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 }}$
-<click style="margin-bottom: 20; cursor: pointer;">
+<details style="margin-bottom: 20; cursor: pointer;">
  
 ![Image Alt](https://github.com/clownzyyaoi/clownzyyaoi/blob/main/2026_08_28_02q_Kleki%20(1).png?raw=true)
 
