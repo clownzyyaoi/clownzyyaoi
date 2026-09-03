@@ -18,7 +18,8 @@ $\color{#f3b5a9}{\textsf{clownzy ㅤ♡ }}$
 $\color{#f1adbc}{\textsf{﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 }}$
 
-$\color{#cfa295}{\textsf{⋮ abt me!}}$
+<img src=<img width="205" height="185" alt="ezgif com-gif-maker (1)" src="https://github.com/user-attachments/assets/bacc7421-21a6-4591-9f25-b94ad90b4b8f" />
+ $\color{#cfa295}{\textsf{abt me!}}$
 
  $\color{#cfa295}{\textsf{ - hi my name is}}$  $\color{#ff85a3}{\textsf{aubree.}}$  $\color{#cfa295}{\textsf{im transfem, transferring back in october last year,}}$ $\color{#ffcfa7}{\textsf{the name}}$ $\color{#ff85a3}{\textsf{aubree,}}$ $\color{#ffcfa7}{\textsf{was given by a friend of mine since they were a big ihasafacelulz fan.}}$ $\color{#cfa295}{\textsf{i LOVE CUDDLING, cuds are always appreciated and wanted, even if im on}}$ $\color{#be5656}{\textsf{dni!}}$ 
 
