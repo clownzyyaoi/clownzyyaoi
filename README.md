@@ -1,50 +1,37 @@
-![Image Alt](https://github.com/clownzyyaoi/clownzyyaoi/blob/main/2026_08_30_04r_Kleki.png?raw=true)
+<p align="center"><a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Fclownzyyaoi"><img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fclownzyyaoi&label=piercers&labelColor=%2340506b&countColor=%23f47373&labelStyle=lower" /></a>
 
 
-![Image Alt](https://github.com/clownzyyaoi/clownzyyaoi/blob/main/2026_08_28_07y_Kleki.png?raw=true)
-![Image Alt](https://github.com/clownzyyaoi/clownzyyaoi/blob/main/tumblr_3a2e00ad40c6a43fa5a8e00ae1b3fee7_e672d96a_500.jpg?raw=true)
-
-<table>
-<br>
-    <tr>
-      <td>
-$\color{#f3b5a9}{\textsf{clownzy ㅤ♡ }}$
-
-<br>
-      </td>
-    </tr>
-    </table>
-
-$\color{#f1adbc}{\textsf{﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
-}}$
 
 
- $\color{#cfa295}{\textsf{abt me!}}$
-
- $\color{#cfa295}{\textsf{ - hi my name is}}$  $\color{#ff85a3}{\textsf{aubree.}}$  $\color{#cfa295}{\textsf{im transfem, transferring back in october last year,}}$ $\color{#ffcfa7}{\textsf{the name}}$ $\color{#ff85a3}{\textsf{aubree,}}$ $\color{#ffcfa7}{\textsf{was given by a friend of mine since they were a big ihasafacelulz fan.}}$ $\color{#cfa295}{\textsf{i LOVE CUDDLING, cuds are always appreciated and wanted, even if im on}}$ $\color{#be5656}{\textsf{dni!}}$ 
-
-  
-
-
- $\color{#f1adbc}{\textsf{﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
-}}$
-
-$\color{#be5656}{\textsf{゛ BYI}}$
-
-$\color{#ae7c75}{\textsf{ ₎₎ i have struggles with social cues and may not understand everything quickly,  just give me some time}}$ 
-$\color{#ae7c75}{\textsf{and patience!}}$ $\color{#be5656}{\textsf{there will, and i mean WILL be times where i dont int with people,}}$ $\color{#a53636}{\textsf{only if im emotionally drained.}}$ 
-
-
-$\color{#f1adbc}{\textsf{﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
-}}$
 
  
-![Image Alt](https://github.com/clownzyyaoi/clownzyyaoi/blob/main/2026_08_30_04g_Kleki.png?raw=true)
-
-$\color{#f5c0cc}{\textsf{sign ata for}}$ [clownzy](https://clownlove.atabook.org/)
+$\color{#762e2f}{\textsf{c }}$ $\color{#562e2e}{\textsf{l }}$ $\color{#562e2e}{\textsf{o }}$ $\color{#362d2e}{\textsf{w }}$ $\color{#362d2e}{\textsf{n }}$ $\color{#162e2e}{\textsf{z }}$ $\color{#162e2e}{\textsf{y }}$
 
 
 
-![Image Alt](https://github.com/clownzyyaoi/clownzyyaoi/blob/main/2026_08_30_04r_Kleki.png?raw=true)
+<img align="left" width="50%" src="https://github.com/clownzyyaoi/clownzyyaoi/blob/main/2026_09_06_04h_Kleki.png?raw=true"  />
+
+
+<sub>${\text{\color{#762e2f} A rake of claws against a mirror
+ }}$</sub><br>
+<sub>${\text{\color{#562e2e} Grazing pelts we all once wore. }}$</sub><br>
+<sub>${\text{\color{#362d2e} A kindling of a swordless bloodshed. }}$</sub><br> <sub>${\text{\color{#162e2e} The creaking of a voiceless door. }}$</sub><br> 
+
+
+<br><br>
+<sub><img width="6%" src="https://github.com/clownzyyaoi/clownzyyaoi/blob/main/2026_09_06_046_Kleki.png?raw=true" />
+
+
+
+
+</p>
+<p align="bottom center">
+<a href="https://clownlove.atabook.org/">新book</a>
+
+
+
+
+
+
 
 
