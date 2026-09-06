@@ -19,7 +19,7 @@ $\color{#762e2f}{\textsf{c }}$ $\color{#562e2e}{\textsf{l }}$ $\color{#562e2e}{\
 
 
 <br><br>
-<sub><img width="6%" src="https://github.com/clownzyyaoi/clownzyyaoi/blob/main/2026_09_06_046_Kleki.png?raw=true" />
+<sub><img width="6%" src="https://github.com/clownzyyaoi/clownzyyaoi/blob/main/2026_09_06_0lr_Kleki.png?raw=true" />
 
 
 
