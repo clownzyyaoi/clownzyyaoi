@@ -25,8 +25,7 @@ $\color{#762e2f}{\textsf{c }}$ $\color{#562e2e}{\textsf{l }}$ $\color{#562e2e}{\
 
 
 
-  <img align="left" src="https://github.com/clownzyyaoi/clownzyyaoi/blob/main/2026_09_07_0ri_Kleki.png?raw=true" />
-</a> <a href="https://clownlove.atabook.org/">
+ [ata](https://clownlove.atabook.org)
 
 
 
