@@ -25,7 +25,7 @@ $\color{#762e2f}{\textsf{c }}$ $\color{#562e2e}{\textsf{l }}$ $\color{#562e2e}{\
 
 <p align="left">
 <a href="https://clownlove.atabook.org/">
-  <img src="(https://github.com/clownzyyaoi/clownzyyaoi/blob/main/2026_09_10_0w4_Kleki.png?raw=true)" width="50">
+  <img src="https://file.garden/aqJcGA0Eu9dBS_hb/2026_09_10_0wf_Kleki.png" width="100">
   
 
 
